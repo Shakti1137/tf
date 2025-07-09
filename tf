@@ -1,0 +1,11 @@
+guzzy 
+file\
+dfh
+bitco
+zama
+runing
+roasted
+tuiil
+eyii
+qwy
+wrick
